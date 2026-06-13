@@ -1,4 +1,4 @@
 ## Resume
 
-[View Resume](SMP.pdf)
+[View Resume](Shashwat_Mahajan_Resume_MLSS2026.pdf)
 
